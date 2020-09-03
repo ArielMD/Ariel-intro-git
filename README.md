@@ -1,1 +1,1 @@
-Este es un gran taller xd
+Este es un gran taller nueva
